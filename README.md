@@ -45,3 +45,5 @@ Until now, of course.
 ### Final Thoughts
 
 Apologies for such a manifesto-esque dump. I had hoped this would be short-and-sweet. Oh well. Hopefully this helped. I do appreciate having your attention this one last time, so thanks for sticking around, and for folks I've known, friends, and family: most of you are pretty damn awesome. I reserve the right to judge everyone else later, once I learn more.
+
+If you're the kind of person that would like to do something on my behalf, I'd ask that you try to reduce the amount of suffering you may be [causing animals](https://www.3movies.wtf/) and/or contributing something to [Cocoon House](https://www.cocoonhouse.org/). And, if you or someone you know needs help, you can try [988 Lifeline](https://988lifeline.org/).
