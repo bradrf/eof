@@ -49,3 +49,5 @@ Apologies for such a manifesto-esque dump. I had hoped this would be short-and-s
 If you're the kind of person that would like to do something on my behalf, I'd ask that you try to reduce the amount of suffering you may be [causing animals](https://www.3movies.wtf/) and/or contributing something to [Cocoon House](https://www.cocoonhouse.org/). And, if you or someone you know needs help, you can try [988 Lifeline](https://988lifeline.org/).
 
 Give your loved ones a hug from me—it'll be a huge surprise for anyone that knows me! Perhaps with a little goose to spice it up? ;-)
+
+Need the answer to life, the universe, and everything? The number 42 is community. You need to have folks you trust that are interested in sharing your experience. Sounds simple, and yet: the devil's in the pudding—check for botulism!
