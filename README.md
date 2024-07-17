@@ -13,3 +13,5 @@ It's an initialism for "end of file," a software term that felt fit-for-purpose.
 It's a tricky thing attempting to distill one's own life into a set of sentences, let alone a single word, but for me, the one thing I feel overwhelmingly is shame. I'm sure there have been good times, and I can even think of a few. Yet, every one has the feeling of veneer covering cheap particle board embarrassment. I am resplendent in masks of repression, cover-up, and artificial self-confidence (probably need to update linkedin).
 
 My sincere hope is that the information I provide may help you achieve a small amount of empathy and understanding. In a perfect world, it might even lead you to forgiveness.
+
+Regardless, I've attempted to avoid too much coloring—keeping it as raw and transparent as I can muster. Yet, it's all rebuilt, replayed, and reconstituted memory, which we know is extremely faulty. YMMV, IANAL, etc.
