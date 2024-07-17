@@ -15,3 +15,7 @@ It's a tricky thing attempting to distill one's own life into a set of sentences
 My sincere hope is that the information I provide may help you achieve a small amount of empathy and understanding. In a perfect world, it might even lead you to forgiveness.
 
 Regardless, I've attempted to avoid too much coloring—keeping it as raw and transparent as I can muster. Yet, it's all rebuilt, replayed, and reconstituted memory, which we know is extremely faulty. YMMV, IANAL, etc.
+
+### Hope!
+
+Believe it or not, I have a lot of hope for the future. Not sure if this is a common feeling for folks in my situation, but it's true for me. Don't get me wrong, there are plenty of concerns and things to be worried about, with lots of suffering, but in the full history of humankind, there are reasons for optimism—of all eras, this one is undeniably the best. Here are a few examples that come to mind:
