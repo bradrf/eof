@@ -41,3 +41,7 @@ But why, you say. What led to this? ¯\\_(ツ)_/¯ Dunno how to answer that with
 I'm not blaming anyone or anything, here, so don't go trying to read between the lines too much. I'm using some *very* broad strokes at key events leading up to this point. I'm not comfortable getting more detailed than that, so take it all with a big grain of salt and understand I carry a fair amount of blame, myself. There wasn't anything stopping me from trying to work through this crap. I'm just not someone that has learned how to accept help. From my perspective, it exposes how weak I am. I know I'm a coward, but I certainly don't want *you* to find out!
 
 Until now, of course.
+
+### Final Thoughts
+
+Apologies for such a manifesto-esque dump. I had hoped this would be short-and-sweet. Oh well. Hopefully this helped. I do appreciate having your attention this one last time, so thanks for sticking around, and for folks I've known, friends, and family: most of you are pretty damn awesome. I reserve the right to judge everyone else later, once I learn more.
