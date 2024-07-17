@@ -27,3 +27,7 @@ Believe it or not, I have a lot of hope for the future. Not sure if this is a co
 * Exploration: I absolutely love all the the things we're learning as we broaden our understanding of the far and near, sea and space. Seems like every week we uncover a new understanding of physics and our world. This type of thing always ends up improving our lives in unexpected ways and provides no end of horizons to seek.
 
 * Energy: Unlocking the fusion achievement in particular will undoubtedly transform lives, and recent advancements indicate it's no longer in the "another 50 years" camp. It's a matter of time, yes, but not inconceivable (shutup vizzini). On top of that, the ever-increasing efficiency for harnessing the sun blows my mind regularly.
+
+### So…why?
+
+In some ways, I ended up painting myself into a corner, and in others, it comes down to pure laziness. As with most folks in this kind of situation, I feel like I'm at a point where there isn't anything more I need to accomplish. No, I haven't done anything worthy or of note, and outside of the embarrassment factor of knowing  my participation in this novel thing called "consciousness" has been negligible, my lack of impact is not unexpected (*statistics* is the harsh mistress, Mr. Heinlein, not the moon, so grok that!). From a finite resources perspective, it seems like my best option is to release this collection of atoms back into the universe and let them participate in other experiments.
