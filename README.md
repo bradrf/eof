@@ -19,3 +19,5 @@ Regardless, I've attempted to avoid too much coloring—keeping it as raw and tr
 ### Hope!
 
 Believe it or not, I have a lot of hope for the future. Not sure if this is a common feeling for folks in my situation, but it's true for me. Don't get me wrong, there are plenty of concerns and things to be worried about, with lots of suffering, but in the full history of humankind, there are reasons for optimism—of all eras, this one is undeniably the best. Here are a few examples that come to mind:
+
+* Tolerance: Sure, there's a lot of rage in media and around the edges where folks are in the deep ends of their own echo chambers, but from a numbers perspective, it's a small percentage of the population. In general, most folks realize it's time to accept others and let everyone express their own identity in their own way. Though it is especially true of younger generations, it will be a huge change and one that'll take decades to complete for our heavily tribal brains—but it will happen. Live and let live.
