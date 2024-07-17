@@ -51,3 +51,7 @@ If you're the kind of person that would like to do something on my behalf, I'd a
 Give your loved ones a hug from me—it'll be a huge surprise for anyone that knows me! Perhaps with a little goose to spice it up? ;-)
 
 Need the answer to life, the universe, and everything? The number 42 is community. You need to have folks you trust that are interested in sharing your experience. Sounds simple, and yet: the devil's in the pudding—check for botulism!
+
+---
+
+^d
